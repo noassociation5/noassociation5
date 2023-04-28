@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @noassociation5
+- 👀 I’m interested in AI and Cyber security
+- 🌱 I’m currently learning "c++"
+- 📫 How to reach me by discord : noassociation5#5872
